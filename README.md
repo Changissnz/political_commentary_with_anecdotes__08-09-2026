@@ -19,7 +19,7 @@ sector of the economy. That would have fit right into what I studied. Since then
 get out of debt after taking out credit from America's big banks. And I have not been able to secure any 
 long-term job in that economic sector. So, I won't be able to pay off my debt. I'll be honest here. 
 
-The notion that a free man owes money to some fat fuck or sniveling speculator, despite his ability to produce 
+The notion that a free man owes money to some f* or sniveling speculator, despite his ability to produce 
 more than twice the amount that he owes, here in the United States is not a satisfying mark. It shows that 
 some people feel the right to remain in a superior position and not let other people pass. As simple as that. 
 The size of the national debt of the United States sends a clear message to most Americans that they are indeed 
