@@ -52,7 +52,8 @@ think that would allow social mobility in the American South. Instead, here is w
   work. These conditions then squeeze a lot of people out of the competition.  
 - the mentality of the American South is not receptive to change. It has historically been considerably more authoritative, less
   industrial, and less educated. This has fostered a spirit preaching for strict adherence to rules, oftentimes going hand in hand
-  with racial/ethnic expectations, albeit it has not made the South any more prosperous than other regions.   
+  with racial/ethnic expectations, albeit it has not made the South any more prosperous than other regions.
+  
 Obvious to state, every region in the United States has its own deficits in conduct. The Pacific Northwest, for example, has this
 strange toxic combination of progressive politics and white supremacy, which ends up disrupting the lives of normal people that
 are not part of those cults. The United States South is pertinent, however, because it shares strong traits with the mentalities
