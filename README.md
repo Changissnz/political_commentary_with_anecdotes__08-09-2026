@@ -8,7 +8,7 @@ There are some things fundamentally broken in the workings of the United States.
 Here in this article, I will lay out some points that tell a few more things on the problems facing 
 the righteousness of the image of the United States. 
 
-The national debt is not decreasing. This fact is the big one that should drive home the point that 
+**The national debt is not decreasing.** This fact is the big one that should drive home the point that 
 some of the greatest problems facing the United States are not going away. Rather, they are consuming 
 the integrity, potential, and vitality of the nation's people. During my twenties, I kept this fact in 
 mind as I strove to be fiscally responsible. And by that, I did not go out of my way into the darkest 
@@ -29,7 +29,7 @@ consumers, a passive if not also gluttonous position in the long term. Ultimatel
 United States' national debt, there is no longer economic science behind it. It is numbers games, international 
 disputes over capital, and politics. 
 
-The regionalism problem. Underneath the great expanse of the continental United States lies some very putrid 
+**The regionalism problem.** Underneath the great expanse of the continental United States lies some very putrid 
 regionalist politics. Here is where I go ahead and say the American South will always be doomed if worse comes 
 to worse. Throughout history, this part of the United States has, by and far, been the most conducive for 
 domestic terrorists and segregationists. Back then, it was cotton fields where blacks had to pick cotton. 
@@ -83,7 +83,7 @@ change my claim on the Global South, in other words: it tends towards greater ba
 leads to more pronounced corruption, and has less appreciation for Western conceptualizations of the humanities, instead using material and
 fealty as replacement, oftentimes suffering in output quality because of those compromises. 
 
-America's minority integration problem. I've read and seen a lot of politics on this matter, a lot of it fixated on perceived injustices against 
+**America's minority integration problem.** I've read and seen a lot of politics on this matter, a lot of it fixated on perceived injustices against 
 blacks. The sad truth is that when there are not good causes to coalesce around, bringing everyone together eventually leads to very noticeable 
 incompatibilities. Sometimes, those incompatibilities spill over into violence. Movements concerning minorities in the United States, from a 
 third-person perspective, is almost reliably comical to be audience of, according to my hypothesis. Some usual courses of events include the 
@@ -103,7 +103,7 @@ following:
   - simple base politics that just happens to coincidentally affect those closest to them, who are oftentimes share their ethnic background in
     segregated areas of the United States.  
 
-America's education problem. This problem, through my years of observation on it, evolved from the necessity of higher education for the middle 
+**America's education problem.** This problem, through my years of observation on it, evolved from the necessity of higher education for the middle 
 class to college grade inflation to the present circumstances, a backlash and defunding of certain areas of higher education. Based on principles 
 of equilibrium, the evolution of the education problem is not so much problematic due to the three phases I described in the previous sentence. 
 Ultimately, I think it just sadly might wind down to an authority chain problem. To elaborate on this, I would like to now mention the Chinese model 
@@ -123,12 +123,12 @@ outside of gender and reproductive norms, and their customs definitively differ 
 when it does not liberate the life, I would also like to add. When education fails the ascetic, banishes hermits, and attempts to castrate the vitality 
 and passion of an individual, that is where education becomes an institution for repression and far more evil matters. 
 
-The legitimacy of American institutions. The power of the internet to rapidly transmit vantage points from one to another has allowed a significant 
+**The legitimacy of American institutions.** The power of the internet to rapidly transmit vantage points from one to another has allowed a significant 
 degree of dissent against bureaucrats and titles. Perception would have some people believe American institutions cannot be relied on in the same way, 
 due to some unfixable spike in corruption. In recent national news, the doctor Anthony Fauci has to answer to a court on his activities during the Covid-19 
 time period.  
 
-The Immigrant Question. America has an undeniable European style to its standards. This turns into encouraging confusion on what it means to be American, 
+**The Immigrant Question.** America has an undeniable European style to its standards. This turns into encouraging confusion on what it means to be American, 
 and how to look and act if you are American. Some people might disagree with this attribute of Europeanism, especially since the United States periodically 
 has policy differences with both Western and Eastern Europe. I have very few comments to add other than that this Europeanism turns into white supremacy after 
 it undergoes phases of radicalization, encouraged by fear campaigns. Due to America's Europeanism, those that do not share strong genealogical ties to Europe 
@@ -136,11 +136,11 @@ might feel excluded and discriminated against, some even resorting to forming mo
 suspected by many political scientists and common people alike to be campaigns sponsored by foreign nations to displace another nations' population and 
 ruin industrial capabilities, cheaper than armed conflict and more deceptive and dangerous than usual trade exchanges. 
 
-The privacy problem, a critical factor in political messaging and political wars. America's surveillance capabilities, coupled with its inconsistent 
+**The privacy problem, a critical factor in political messaging and political wars.** America's surveillance capabilities, coupled with its inconsistent 
 policies on how to treat different demographics, can be an advanced persistent threat that cannot be escaped without falling into the clutches of another 
 nation's regime of intelligence gathering and exploitation. The assumption is that someone, somewhere, will always know certain obscurities about you. 
 The privacy problem is really about how the information is monetized or used. 
 
-Revisionism and alternative justice. This goes in line with problems in historical accounting, similar in vain to other nations I presume, and the 
+**Revisionism and alternative justice.** This goes in line with problems in historical accounting, similar in vain to other nations I presume, and the 
 spottiness of the official law that enables vigilante activity, a great deal of it from paramilitary groups. 
 
