@@ -118,7 +118,7 @@ intelligence. Competition for jobs and prestige that come from education has sti
 to encourage welfare conditions in higher education settings somewhat made some education institutions into pseudo-penitentiary programs. I am merely 
 stating this from my perspective. Intellectualism, throughout historical conditions, goes through phases where it becomes very cheap if not also 
 ineffective. I think that is happening now with generative artificial intelligence, a technology that extends individual capability to propagate 
-past their given intelligence and knowledge. In the historical Chinese model of education, some scholars also happen to be eunuchs. A significant 
+past their given intelligence and knowledge. In the historical Chinese model of education, some scholars also happened to be eunuchs. A significant 
 proportion of imperial Chinese advisors were eunuchs. I have very little to say on those people besides from the fact that they effectively exist 
 outside of gender and reproductive norms, and their customs definitively differ from priest/monk types over in the West. Education becomes terrible 
 when it does not liberate the life, I would also like to add. When education fails the ascetic, banishes hermits, and attempts to castrate the vitality 
