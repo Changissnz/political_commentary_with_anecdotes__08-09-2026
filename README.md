@@ -142,6 +142,6 @@ policies on how to treat different demographics, can be an advanced persistent t
 nation's regime of intelligence gathering and exploitation. The assumption is that someone, somewhere, will always know certain obscurities about you. 
 The privacy problem is really about how the information is monetized or used. 
 
-**Revisionism and alternative justice.** This goes in line with problems in historical accounting, similar in vain to other nations I presume, and the 
+**Revisionism and alternative justice.** This goes in line with problems in historical accounting, similar in vein to other nations I presume, and the 
 spottiness of the official law that enables vigilante activity, a great deal of it from paramilitary groups. 
 
