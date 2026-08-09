@@ -112,7 +112,7 @@ of education. This is important in this little discussion because the Chinese mo
 way into southern Japan (the historical anti-Kyoto factions), Korea, Vietnam, and Laos and Cambodia. The Chinese model of education places an unduly 
 amount of respect and authority with the teacher to extents that satisfy authoritarian doctrine. Over in the West, specifically America, education 
 problems fall outside of the Confucianist constructs. However, the convolution of expertise with authority, legitimized and propelled by institutions, 
-is the alternative. This was most obviously witnessed under Nazi Germany. Here in the United States, the greater magnitude of ethnic flora allows 
+is the alternative. This was most obviously witnessed under Nazi Germany. Here in the United States, the greater magnitude of ethnic flora helps allow 
 liberalities to be expressed. With that said, higher education has had to contend with societal changes spurred by the commercialization of artificial 
 intelligence. Competition for jobs and prestige that come from education has stiffened significantly. Also, the tendency of American socialist policy 
 to encourage welfare conditions in higher education settings somewhat made some education institutions into pseudo-penitentiary programs. I am merely 
