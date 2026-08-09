@@ -80,7 +80,7 @@ to state of the Global South and does not consider Western Europe's legacy of mo
 the Global South. Of course, autocracy is just one element that explains why a people would become servile, docile, and unquestioning through
 their difficult labors. On the other hand, Western media nowadays has many people believing that Western liberal excesses have come into a great
 impasse with Arab and Hispanic migrants. Maybe there are indeed lines drawn separating people by bloodline and family tree. But that does not
-change my claim on the Global South, in other words: it tends towards greater barbarity through labor and juntas, unquestioning behavior that
+change my claim on the Global South, in other words: it tends toward greater barbarity through labor and juntas, unquestioning behavior that
 leads to more pronounced corruption, and has less appreciation for Western conceptualizations of the humanities, instead using material and
 fealty as replacement, oftentimes suffering in output quality because of those compromises. 
 
