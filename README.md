@@ -1,7 +1,7 @@
 # Political Commentary With Anecdotes: 08-09-2026
 ## written by Richard Pham 
 
-A rundown of American politics without the typical Red Republican Blue Democrat mentions. 
+Opinion piece, a rundown of American politics without the typical Red Republican Blue Democrat mentions. 
 --------------------------------------------------------------------------------------------------
 
 There are some things fundamentally broken in the workings of the United States. That much is clear. 
