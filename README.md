@@ -140,7 +140,7 @@ ruin industrial capabilities, cheaper than armed conflict and more deceptive and
 **The privacy problem, a critical factor in political messaging and political wars.** America's surveillance capabilities, coupled with its inconsistent 
 policies on how to treat different demographics, can be an advanced persistent threat that cannot be escaped without falling into the clutches of another 
 nation's regime of intelligence gathering and exploitation. The assumption is that someone, somewhere, will always know certain obscurities about you. 
-The privacy problem is really about how the information is monetized or used. 
+The privacy problem is really about how the information is monetized and used. 
 
 **Revisionism and alternative justice.** This goes in line with problems in historical accounting, similar in vein to other nations I presume, and the 
 spottiness of the official law that enables vigilante activity, a great deal of it from paramilitary groups. 
