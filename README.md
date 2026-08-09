@@ -101,7 +101,7 @@ following:
 - minorities themselves posing as impediments to others' path to success. Their motive for doing this involves at least one of these motives:  
   - maintaining ethnic cohesion/uniformity.  
   - anti-competitive behavior to prevent those "of their own kind" from getting ahead.  
-  - simple base politics that just happens to coincidentally affect those closest to them, who are oftentimes share their ethnic background in
+  - simple base politics that just happens to coincidentally affect those closest to them, who oftentimes share their ethnic background in
     segregated areas of the United States.  
 
 **America's education problem.** This problem, through my years of observation on it, evolved from the necessity of higher education for the middle 
