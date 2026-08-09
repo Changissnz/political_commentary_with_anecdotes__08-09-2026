@@ -78,7 +78,7 @@ of civilization in the Global South. I will now explicitly state the reasons why
 Autocrats are drawn to autocratic ideologies, and the subjects of autocrats are pressured into appeasing them. This is simplistic and inaccurate
 to state of the Global South and does not consider Western Europe's legacy of monarchies. But that is the general sense of the people bred in
 the Global South. Of course, autocracy is just one element that explains why a people would become servile, docile, and unquestioning through
-their difficult labors. On the other hand, Western media nowadays has many people believing that Western liberal excesses has come into a great
+their difficult labors. On the other hand, Western media nowadays has many people believing that Western liberal excesses have come into a great
 impasse with Arab and Hispanic migrants. Maybe there are indeed lines drawn separating people by bloodline and family tree. But that does not
 change my claim on the Global South, in other words: it tends towards greater barbarity through labor and juntas, unquestioning behavior that
 leads to more pronounced corruption, and has less appreciation for Western conceptualizations of the humanities, instead using material and
