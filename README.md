@@ -56,7 +56,7 @@ think that would allow social mobility in the American South. Instead, here is w
   
 Obvious to state, every region in the United States has its own deficits in conduct. The Pacific Northwest, for example, has this
 strange toxic combination of progressive politics and white supremacy, which ends up disrupting the lives of normal people that
-are not part of those cults. The United States South is pertinent, however, because it shares strong traits with the mentalities
+are not part of those cults. The United States South is pertinent, however, because it strongly shares traits with the mentalities
 of the Global South. If you are born and raised in a developed Western nation, you probably would not shower praises on all aspects
 of civilization in the Global South. I will now explicitly state the reasons why you probably would not.
 - the majority of raw materials are sourced from the Global South. The nature and characteristics of a person's occupation is a
