@@ -96,7 +96,7 @@ following:
   towards minorities. The person could be all for LGBT rights and even partake in LGBT sexual activities.  
 - people of different ethnic backgrounds enter into a marriage, and have to deal with attitudes against miscegenation as well as identity issues
   that their children go through.  
-- a person of a genealogical minority is able to achieve a high-ranking position, such as political office. And they have to serve as a "buffer"
+- a person of a genealogical minority is able to achieve a high-ranking position, such as political office. And they have to serve as a "buffer",
   a "bridge" in other words, between two or more political factions that are fixated on ethnic politics.  
 - minorities themselves posing as impediments to others' path to success. Their motive for doing this involves at least one of these motives:  
   - maintaining ethnic cohesion/uniformity.  
