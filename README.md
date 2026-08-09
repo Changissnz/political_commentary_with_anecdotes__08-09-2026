@@ -72,7 +72,8 @@ of civilization in the Global South. I will now explicitly state the reasons why
   that having access to raw resources can compensate for difficult refinement processes, valued in more developed parts of the world. Nepotism
   runs high, although I cannot say how that compares to Western Europe and North America. But what this means is that materialism tends to be
   valued much more than personal expression, and the officiousness itself is a barrier to transparent and forthright communication with people
-  not of the Global South.  
+  not of the Global South.
+  
 Autocrats are drawn to autocratic ideologies, and the subjects of autocrats are pressured into appeasing them. This is simplistic and inaccurate
 to state of the Global South and does not consider Western Europe's legacy of monarchies. But that is the general sense of the people bred in
 the Global South. Of course, autocracy is just one element that explains why a people would become servile, docile, and unquestioning through
