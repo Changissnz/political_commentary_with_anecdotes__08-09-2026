@@ -87,7 +87,7 @@ fealty as replacement, oftentimes suffering in output quality because of those c
 **America's minority integration problem.** I've read and seen a lot of politics on this matter, a lot of it fixated on perceived injustices against 
 blacks. The sad truth is that when there are not good causes to coalesce around, bringing everyone together eventually leads to very noticeable 
 incompatibilities. Sometimes, those incompatibilities spill over into violence. Movements concerning minorities in the United States, from a 
-third-person perspective, is almost reliably comical to be audience of, according to my hypothesis. Some usual courses of events include the 
+third-person perspective, are almost reliably comical to be audience of, according to my hypothesis. Some usual courses of events include the 
 following: 
 - two or more people from different ethnic backgrounds get together. Faults and insults get exchanged. The event gets narrated through the lens of
   discrimination and lack of equality.  
